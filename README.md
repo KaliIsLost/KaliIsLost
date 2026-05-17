@@ -2,7 +2,7 @@
 
 <p align="center"><img src="https://file.garden/aGSbGubBfAqOtcQO/tumblr_f9dadc2d0d67fb23c034eb25313d4619_3de17cd2_400.png" width="600" />
 
-  ![profileviews](https://komarev.com/ghpvc/?username=BaphometAngel&color=yellow)
+  ![profileviews](https://komarev.com/ghpvc/?username=KalilsLost&color=red)
 
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled186_20260517014121.png" width="350" />
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled184_20260517014020.png" width="100" />
