@@ -9,9 +9,9 @@
 <p align="center">    </a><a href="https://github.com/BaphometAngel">ᴍʏ ᴀɴɢᴇʟ , <a href="https://kalistraw.straw.page">ꜱᴛʀᴀᴡ !
 </a>  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled182_20260517013715.png" width="320" />
-<p align="center">𐂯 .ᐟ⸝⸝
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/895A1E40-0CA6-45A2-9B22-E1F803A9A0EE.gif" width="300" />    
-<p align="center">υ´• ﻌ •`υ 
+<p align="center">୧ ‧₊˚ 🥩🦴 ⋅
+<p align="center"> <img src="https://file.garden/aGSbGubBfAqOtcQO/8C5E5A37-1A9A-41D3-80C2-4A85D43BCAEC.gif" width="300" />    
+<p align="center">૮₍´｡ᵔ ꈊ ᵔ｡`₎ა
 <p align="center">
 <p align="center">
  <p align="center"><a href="https://github.com/kittinan/spotify-github-profile">
