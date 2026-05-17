@@ -6,7 +6,8 @@
 
 <p align="center"><img src="https://file.garden/aGSbGubBfAqOtcQO/Untitled188_20260517021007.png" width="350" />
 <p align="center"><img src="https://file.garden/aGSbGubBfAqOtcQO/Untitled187_20260517020922.png" width="100" />
-<p align="center">    </a><a href="https://github.com/BaphometAngel">ᴍʏ ᴀɴɢᴇʟ , <a href="https://lunalaglazer.straw.page">𝙨𝙩𝙧𝙖𝙬 ,, !</a>  
+<p align="center">    </a><a href="https://github.com/BaphometAngel">ᴍʏ ᴀɴɢᴇʟ , <a href="https://kalistraw.straw.page">ꜱᴛʀᴀᴡ !
+</a>  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled182_20260517013715.png" width="320" />
 <p align="center">𐂯 .ᐟ⸝⸝
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/895A1E40-0CA6-45A2-9B22-E1F803A9A0EE.gif" width="300" />    
