@@ -1,10 +1,19 @@
-<p align="center"> <img src="https://file.garden/aGSbGubBfAqOtcQO/Untitled81_20260404214444.png" width="30" />
-<p align="center"> <a href=" kaliloveshersexyhotwife.atabook.org/">ᗩTᗩ₊˚'</a>  </a><a href="https://github.com/Bloodngutsz">𝑀𝓎 𝒢𝓇𝒶𝒸𝑒
-<p align="center"> <img src="https://file.garden/aGSbGubBfAqOtcQO/Untitled79_20260404210520.png" width="320" />
-<p align="center">⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺<p align="center"> </a><img src="https://file.garden/aGSbGubBfAqOtcQO/Untitled12_20260405142430.png" width="100" <p align="center"> <img src="https://file.garden/aGSbGubBfAqOtcQO/poop.webp" width="400" /></a><img src="https://file.garden/aGSbGubBfAqOtcQO/Untitled13_20260405143242.png" width="100">
-<p align="center">⸮ ﹖ ︖ ⁇ ¿ ‽ ？
-<p align="center">𝕮✮𝖗𝖙𝖎𝖋𝖎✮𝖉 𝖑𝖔𝖘✮𝖗
-<p align="center"><a href="https://github.com/kittinan/spotify-github-profile">
+<h6 align="center">
+
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ee2cebc5d8824774389041bddd478fe4_f13f003b_400.webp" width="600" />
+
+  ![profileviews](https://komarev.com/ghpvc/?username=BaphometAngel&color=yellow)
+
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled186_20260517014121.png" width="350" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled184_20260517014020.png" width="100" />
+<p align="center"> <a href="https://maddywaddyy.atabook.org/">𝙢𝙮 𝙖𝙩𝙖 ,</a>   </a><a href="https://github.com/KaliIsLost">𝙢𝙮 𝙡𝙤𝙫𝙚𝙧 . <a href="https://lunalaglazer.straw.page">𝙨𝙩𝙧𝙖𝙬 ,, !</a>  
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled182_20260517013715.png" width="320" />
+<p align="center">𐂯 .ᐟ⸝⸝
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/895A1E40-0CA6-45A2-9B22-E1F803A9A0EE.gif" width="300" />    
+<p align="center">υ´• ﻌ •`υ 
+<p align="center">
+<p align="center">
+ <p align="center"><a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ov2ft7m5qnki2oavdf4exlvjeq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=940000&bar_color_cover=false">
-  </a>
-</p>
+
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ee2cebc5d8824774389041bddd478fe4_f13f003b_400.webp" width="600" />
